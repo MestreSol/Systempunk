@@ -1,0 +1,1 @@
+Uma empresa fachada pra um laboratorio que não liga para direitors humanos, os funcionarios que entram pra manufatura precisam tomar uma pilula que faz as pessoas ao seu redor esquecer de quem são elas
