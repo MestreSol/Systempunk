@@ -1,0 +1,1 @@
+Um cálculo cabuloso para criar um símbolo que abre a dimensão [[Abismos da sombra]], alterando suas variáveis é possível abrir um portal para os outras duas dimensões [[Planícies da concretude]] e [[Crepúsculos Serenos]]

@@ -1,0 +1,11 @@
+Quando o grande [[Historia/Systempunk/Eventos/Cataclisma Mágico|Cataclisma Mágico]] ocorreu, milhares de vidas foram perdidas para que a magia existisse hoje, concretizando-se novamente a frase de que diz: 
+
+> "Não há glória sem sacrifício, conquista sem solidão, amor sem desilusão e progresso sem derramar sangue"
+  
+Assim, durante o impacto monumental do Cataclisma, que alterou significativamente a vida no universo, um evento extraordinário desdobrava-se na origem da força. À medida que a força mágica desenfreada, liberada pelo sacrifício do antigo Kenzie, se espalhava de forma catastrófica, o rastro deixado para trás se fundia à beleza do caos, assemelhando-se a alguém que se arrepende de seus pecados. O resultado desse tumulto mágico era um planeta dividido ao meio, cujo núcleo consistia no próprio núcleo da magia de todo o nosso universo.
+
+A força desse núcleo parecia ser ilimitada; até o momento de estudo, não havia encontrado meios de interromper o fluxo desde que fora aberto. Assim, com a vontade das [[Historia/Systempunk/Conceitos/Supra-Singularidade|Supra-Singularidades]] aprisionadas e o consentimento do [[Historia/Systempunk/Conceitos/Desconhecido|Desconhecido]], foi forjado o derradeiro artefato: as [[Lentes Arcanas]]. Trata-se de uma espécie de lupa que amplifica o poder emanado de fora do universo.
+
+O Exordio desempenha o papel de fonte, e no seu centro estão as [[Lentes Arcanas]], que mantêm o fluxo de poder operando por todo o universo.
+
+Durante os períodos marcantes do início da [[Historia/Systempunk/Eras/Eras Menores/50. Space Opera|Space Opera]], o Exordio passou por significativas transformações. O local foi cercado para assegurar que nenhuma civilização tentasse recuperar seu poder para si mesma. Dessa forma, mediante uma exploração abrangente, as [[Ordens e Clans/Cátedras Arcanas|Cátedras Arcanas]], em colaboração com as [[Arcânicas]] e seus seguidores, estabeleceram uma cidadela ao redor do planeta de núcleo exposto. A partir desse ponto, eles exercem controle sobre toda a magia do universo, além de influenciarem as forças políticas de diversos povos e nações espalhadas pela vasta existência do [[Historia/Systempunk/Conceitos/Ignitário|Ignitário]].

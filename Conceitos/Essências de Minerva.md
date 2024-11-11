@@ -1,0 +1,1 @@
+Essência primordial que controla as [[Singularidades]] e que é retirada das [[Divindades]] quando caem no exilio
